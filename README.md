@@ -1,1 +1,3 @@
-# .github
+# *A Deadly Grudge: When Jealousy Turned to Murder*
+## *Jealousy. Rage. Murder. Discover the shocking story of Cain and Abel—the first murder in human history. Experience this Bible story in vivid, comic-style storytelling that reveals God’s justice, mercy, and a powerful warning about jealousy. A Deadly Grudge isn’t just an old Bible story—it’s a mirror. It challenges us to confront jealousy, surrender pride, and choose God’s way before anger chooses for us.* [More details…](https://spiritualkhazaana.com/web-stories/a-deadly-grudge/)
+## #ActionBible #CainAndAbel #KnowGodPersonally #FaithIgnited #cainandabelstory #grudge #adeadlygrudge #firstmurderinthebible
